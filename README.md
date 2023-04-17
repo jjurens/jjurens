@@ -1,5 +1,11 @@
-### Hi there 👋
-
+### Juren Pedrico 👋
+Bachelor of science in Information Technology
+Central Philippine University
+- ⚡ Traveler
+- ⚡ Marites
+- ⚡ One call away friend
+- ⚡ Generous
+- ⚡ Drunk Master
 <!--
 **jjurens/jjurens** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
